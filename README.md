@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @xSavageCat
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
+- 👀 I’m interested in Pokimane
+- 🌱 I’m currently learning something... hopefully
+- 💞️ I’m looking to collaborate on things within the technology realm
 - 📫 How to reach me Kaatz#8623 
 
 <!---
